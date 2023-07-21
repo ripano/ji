@@ -1,5 +1,2 @@
----
-layout: forward
-target: https://www.instagram.com/jasaindigo/
----
-# Jasa Indigo
+
+# Jasa Indigo Konsultasi Tanya Jawab Anak Indigo 
