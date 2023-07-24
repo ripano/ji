@@ -1,6 +1,7 @@
 
 # Jasa Indigo Konsultasi Tanya Jawab Anak Indigo 
 Jasaindigo.com adalah tempat konsultasi supranatural. Tentang diri anda sendiri atau orang lain. Fenomena disekitar anda.
+ <img src="https://blogger.googleusercontent.com/img/a/AVvXsEgVTK2wZrID6Rmn6Kt5EQvODrkoy4IPWcVpob6-1MF_7aSCUqVkoDzcdlcDInKSuW-EecDXnu1ygoAOFA1q6ZZV_viH0XPvWbR061HyYrZZ2M8bixyvW28gDX-9TQ2O3e4JJHltjm-h-TXbNmdn4R7CmlQ493ysVndo8caBdwHC42LXiCAM8kAFDMPDHCU" width="400">
 
 ## Tes Aura gratis
 Melihat apakah anda memiliki aura gelap yang dominan. Aura gelap bisa membuat diri seseorang sering sial.
